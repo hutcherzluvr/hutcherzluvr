@@ -25,9 +25,7 @@ biggest josh hutcherson fan ever trust
 
 ![tumblr_5a7122f8e93b860757a23849e7dac68b_ba8150f9_500](https://github.com/arkh4mtapes/arkh4mtapes/assets/139326012/23ac5c9e-2b0a-41b8-b137-53cea80aa631)
 
-
 # byi ;
-
 
 <p align="center">
 <img src="/>
@@ -36,7 +34,6 @@ biggest josh hutcherson fan ever trust
 
 <p align="center">
 <img src="/>
-
 
 ➤ ***i hide freely,*** but if you're *not on my dni* (which can be found on my [**patreon**](https://www.patreon.com/arkh4mtapes)), you're free to interact
 
